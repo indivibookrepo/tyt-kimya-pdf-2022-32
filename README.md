@@ -1,0 +1,1 @@
+# tyt-kimya-pdf-2022-32
